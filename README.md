@@ -1,1 +1,3 @@
 # Limp Bizkit
+
+Gold Cobra
